@@ -22,7 +22,7 @@ I only stayed their for the summer since it was a summer only intern, but I had 
 
 My time at Hocking college. This is my second year here at Hocking college, and I'm still currently majoring in cybersecurity in my free time I like to go to YouTube and watch Network chunk to learn more about coding and networking. 
 
-You can also see my other respatories of my notes and what I have/done at my time in Hocking college. 
+You can also see my other  repositories of my notes and what I have/done at my time in Hocking college. 
 
 
 
